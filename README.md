@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @bortolonrodrigo
+- 👀 I’m interested in superbikes, NBA and of course, all subjects related to IT.
+- 🌱 I’m currently learning GCP
+- 📫 How to reach me: rodrigo.bortolon@contabilizei.com.br
